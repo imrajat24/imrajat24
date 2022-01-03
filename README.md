@@ -1,8 +1,8 @@
 ### Hey there 👋
-### My Gorgeous friends on GitHub. ( Yes it's inspired from DevEd in case you know him 😅 )
+My Gorgeous friends on GitHub. ( Yes it's inspired from DevEd in case you know him 😅 )
 
-### Myself Rajat. I am the founder of RightWays. We help people to live their passion by providing them the right opportunities
-### It's nice to see you here. 🙂
+Myself Rajat. I am the founder of RightWays. We help people to live their passion by providing them the right opportunities
+It's nice to see you here. 🙂
 
 ### I am a self-taught designer and developer and have done my Bachelor's degree in Computer Science Engineering.
 ### I have worked with different startups and non-profit organizations in the past. What I love about me is that I never say NO to any work that is important to me and is out of my skill set. I have experienced many such tasks during my ("still a small") startup journey. Yeah, that's pretty much about me.
