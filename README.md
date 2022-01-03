@@ -17,8 +17,8 @@ P.S : If you have reached down here, then lets have a chat. I
 would love to have a conversation. 🙂✌
 
 ### Here are my Social media handles :
-LinkedIn: https://www.linkedin.com/in/rajat-gulati/
-Twitter: https://twitter.com/ThisIsRajat24
+### LinkedIn: https://www.linkedin.com/in/rajat-gulati/
+### Twitter: https://twitter.com/ThisIsRajat24
 <!--
 **imrajat24/imrajat24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
