@@ -7,7 +7,7 @@ It's nice to see you here. 🙂
 ### I am a self-taught designer and developer and have done my Bachelor's degree in Computer Science Engineering.
 I have worked with different startups and non-profit organizations in the past. What I love about me is that I never say NO to any work that is important to me and is out of my skill set. I have experienced many such tasks during my ("still a small") startup journey. Yeah, that's pretty much about me.
 
-### Currently I am also working as a Full Time Employee at XR based startup. We are building some fun stuff for the Meta Verse :)
+### Currently I am also working as a Full Time Employee at Metaverse based startup. We are building some fun stuff for the Meta Verse :)
 
 I want to help all those individuals who are confused about their career paths and as a result, they are out on a wrong way. Through RightWays, I wish to bring them back to the RightWay of their career.
 You can check our social media handles for more info down below 👇
